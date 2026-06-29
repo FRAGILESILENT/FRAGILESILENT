@@ -6,6 +6,10 @@ i'm a small fan of alberto vázquez's works such as decorado, unicorn wars, bird
 
 i usually appear with unicorn wars/decorado, heathers ponie so yes really free to int if we're in the same interest gate HEH
 
+i use different account often
+
+[@NULLVEMBER](https://github.com/NULLVEMBER), [@DEC0RADO](https://github.com/DEC0RADO), [@carehound](https://github.com/carehound) [@ANARCHIAST](https://github.com/ANARCHIAST) is me
+
 i can act cold and rude sometimes just because my nonsense episodes.. ok.. sorry if i acted shitty to you and avoiding you for no clear reasons, i NEED free space and so are YOU .??
 
 always free to c*h, even if i put dni/iwc/iwec on my name
