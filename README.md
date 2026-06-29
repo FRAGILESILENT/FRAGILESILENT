@@ -1,4 +1,5 @@
 ## wip guys hi hello hai ##
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Cossette+Titre&duration=1000&pause=100&color=000000&center=true&vCenter=true&width=435&lines=bait..;and+switch!;one+and+all%2C;full+of+shit.;bait..;and+switch!;everything+in+time;⠀⠀" alt="Typing SVG" /></a>
 ![me and MYSELF](https://files.catbox.moe/uzrgmn.jpeg)
 
 i'm a small fan of alberto vázquez's works such as decorado, unicorn wars, birdboy: the forgotten children and also homeless home. mainly hyperfixated about decorado now
