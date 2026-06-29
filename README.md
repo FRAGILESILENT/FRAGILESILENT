@@ -33,3 +33,5 @@ always free to c*h, even if i put dni/iwc/iwec on my name
 </details>
 
 ![](https://files.catbox.moe/cz5phr.jpg)
+
+thanks for reading this so far! <3
